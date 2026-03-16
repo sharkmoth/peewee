@@ -29,5 +29,9 @@ heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 
 </div>
  
-<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/d866f2f2-58ba-4c9b-9e44-e98868fa6f7a" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/85f784ea-7baf-4f57-819a-bbcc21cc0f79" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/95ebf648-322d-4a45-85ca-46a44301d134" />
+<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/d866f2f2-58ba-4c9b-9e44-e98868fa6f7a" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/85f784ea-7baf-4f57-819a-bbcc21cc0f79" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/95ebf648-322d-4a45-85ca-46a44301d134" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/0b3ea7ad-eab5-427d-8b11-e654c54f2800" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/b0ab3858-5384-427f-a92b-9b54ee0503f2" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/b74bfe97-b68c-4b45-881b-f8117997217f" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/c06efba1-28e1-4451-bc9a-1c9d3bbd27bd" />
+
+
+
+
 

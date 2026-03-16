@@ -11,4 +11,6 @@
 zvsfsdfsdf
 </div>
 
-<img width="250" height="250" alt="Vox 1 (2)" src="https://github.com/user-attachments/assets/0a89659e-2a88-4a64-994c-5f8754ccbb26" /><img width="250" height="250" alt="Valentino 1 (1)" src="https://github.com/user-attachments/assets/a7459801-ab9b-4f03-bb4e-4b00a0a1c941" />
+<img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />
+
+

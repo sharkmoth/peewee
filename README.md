@@ -11,7 +11,7 @@
 zvsfsdfsdf
 </div>
 
-<img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />    staticmoth lover <3      <img width="150" height="136" alt="radioapple (1)" src="https://github.com/user-attachments/assets/283cee43-eb27-49a8-b25b-e82678ab7ecd" />
+<img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />    staticmoth lover | radioapple lover      <img width="150" height="136" alt="radioapple (1)" src="https://github.com/user-attachments/assets/283cee43-eb27-49a8-b25b-e82678ab7ecd" />
 
 
 

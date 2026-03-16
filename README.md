@@ -11,7 +11,7 @@
 
 ![SHark 1 (1)](https://github.com/user-attachments/assets/ca3e606d-05fe-4322-92f0-adf9f4d99081)
 
-heya! i go by a few names, but you can call me vinnie,vox or ash.
+heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 
 <h3>˚₊‧꒰ა BFYI ໒꒱ ‧₊˚</h3>
 <img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" />

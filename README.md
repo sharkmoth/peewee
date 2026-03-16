@@ -40,7 +40,8 @@ heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 </div>
 
 
-![sharklover](https://github.com/user-attachments/assets/7415ea47-8e40-4b98-adcc-7af8564afb76)
+![sharklover](https://github.com/user-attachments/assets/7415ea47-8e40-4b98-adcc-7af8564afb76)![heh](https://github.com/user-attachments/assets/7fc43d3e-f494-4389-9748-27eaa9283b82)
+
 
 
 

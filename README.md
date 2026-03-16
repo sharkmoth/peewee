@@ -29,3 +29,5 @@ heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 
 </div>
  
+<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/d866f2f2-58ba-4c9b-9e44-e98868fa6f7a" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/85f784ea-7baf-4f57-819a-bbcc21cc0f79" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/95ebf648-322d-4a45-85ca-46a44301d134" />
+

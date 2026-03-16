@@ -18,7 +18,7 @@ heya! i go by a few names, but you can call me vinnie,vox or ash.
 
 ✦ Please do not interact with me if you obsess over radiosilence/radiostatic/murdermedia.
 
-✦ I don't do ships with anyone else other than my boyfriend.<h5>HDo not ask.</h5> Platonic is fine!
+✦ I don't do ships with anyone else other than my boyfriend. <h5>Do not ask.</h5> Platonic is fine!
 
 ✦ Do not interact with me if you are outwardly seriously sexual and ERP in public on ponytown. It's WEIRD AS FUCK.
 

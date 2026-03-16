@@ -12,7 +12,11 @@
 ![SHark 1 (1)](https://github.com/user-attachments/assets/ca3e606d-05fe-4322-92f0-adf9f4d99081)
 
 zvsfsdfsdf
+</div>
 
+asdasd
+
+<div align="center">
 
 <img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />    staticmoth lover | radioapple lover | staticapple lover     <img width="150" height="136" alt="radioapple (1)" src="https://github.com/user-attachments/assets/283cee43-eb27-49a8-b25b-e82678ab7ecd" />
 ![9aceb64a-f88e-4a58-86bd-c5574ba8 (1)](https://github.com/user-attachments/assets/34896f21-67a1-48dc-b5c9-2e7b135b052a)

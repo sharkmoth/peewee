@@ -40,7 +40,10 @@ heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 </div>
 
 
-![sharklover](https://github.com/user-attachments/assets/7415ea47-8e40-4b98-adcc-7af8564afb76)![heh](https://github.com/user-attachments/assets/7fc43d3e-f494-4389-9748-27eaa9283b82)![tumblr_22258458cfb8a1cbc9fd7f4a5c5a3b66_700d7099_100](https://github.com/user-attachments/assets/a16189d5-6b8f-4cd9-b563-c5b744af2ccc)
+![sharklover](https://github.com/user-attachments/assets/7415ea47-8e40-4b98-adcc-7af8564afb76)![heh](https://github.com/user-attachments/assets/7fc43d3e-f494-4389-9748-27eaa9283b82)![tumblr_22258458cfb8a1cbc9fd7f4a5c5a3b66_700d7099_100](https://github.com/user-attachments/assets/a16189d5-6b8f-4cd9-b563-c5b744af2ccc)<img width="99" height="56" alt="tumblr_c7c79e5cf8e218f3d7ff6c6467601341_af9e0afb_100" src="https://github.com/user-attachments/assets/be47e3cf-2b21-4af0-a075-eb75e103c387" /><img width="99" height="56" alt="tumblr_6ef2aa7539cfa39e31bdcddc65ff66df_db72f23e_100" src="https://github.com/user-attachments/assets/2b0829b7-3176-4c3c-a0fd-4d11698897bb" />![tumblr_13fe8ab1feb03fa97577f09623bc42a5_8cf28c6d_250](https://github.com/user-attachments/assets/7be5a893-6ba8-478d-94f2-56c447e55b78)![tumblr_939aca92643c999838dbeade61c1553b_f4d41781_250](https://github.com/user-attachments/assets/fa9a305e-5fda-49d2-80af-a14c1aa0a170)![tumblr_1fd459952f45b4ba951fe88f54f50bc5_615f5a69_250](https://github.com/user-attachments/assets/0981497e-507d-4272-bcb4-65850bb4f206)
+
+
+
 
 
 

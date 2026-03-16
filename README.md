@@ -16,9 +16,9 @@ heya! i go by a few names, but you can call me vinnie,vox or ash.
 <h3>˚₊‧꒰ა BFYI ໒꒱ ‧₊˚</h3>
 <img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" />
 
-✦ Please do not interact with me if you obsess over radiosilence/radiostatic/murdermedia.
+✦ Please do not interact with me if you *obsess* over *radiosilence/radiostatic/murdermedia.*
 
-✦ I don't do ships with anyone else other than my boyfriend. <h5>Do not ask.</h5> Platonic is fine!
+✦ I don't do ships with anyone else other than my boyfriend. ***Do not ask.*** Platonic is fine!
 
 ✦ Do not interact with me if you are outwardly seriously sexual and ERP in public on ponytown. It's WEIRD AS FUCK.
 

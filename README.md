@@ -22,10 +22,6 @@ heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 
 ✦ Do not interact with me if you are outwardly seriously sexual and ERP in public on ponytown. It's WEIRD AS FUCK.
 
-
-<h3>˚₊‧꒰ა PonyTown ໒꒱ ‧₊˚</h3>
-<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" />
-
 ✦ Skin inspo is perfectly fine! Just please don't copy my skin entirely. ^^ Thank you
 
 <img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />    staticmoth lover | radioapple lover | staticapple lover     <img width="150" height="136" alt="radioapple (1)" src="https://github.com/user-attachments/assets/283cee43-eb27-49a8-b25b-e82678ab7ecd" />

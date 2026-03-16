@@ -10,6 +10,7 @@
 <h1>.𖥔 ݁ ˖ ✦  ‧₊˚ ⋅ℌ𝔢𝔶𝔞, 𝔴𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔭𝔞𝔤𝔢  </h1>
 
 
+<img width="200" height="200" alt="tumblr_ae81b1b8f46e60799ecfb926a" src="https://github.com/user-attachments/assets/be7730d7-7486-4fe2-bb62-b1cd8e0e3625" />
 
 
 ![SHark 1 (1)](https://github.com/user-attachments/assets/ca3e606d-05fe-4322-92f0-adf9f4d99081)
@@ -17,7 +18,9 @@
 heya! i go by a few names, but you can call me *vinnie*,**vox** or ***ash***.
 
 <h3>˚₊‧꒰ა BFYI ໒꒱ ‧₊˚</h3>
-<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" />
+<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/ff28d853-92a2-4d05-a612-9bc27743f6be" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/672eeef5-b59b-4458-a7de-8f803d79d01a" />
+
+
 
 ✦ Please do not interact with me if you *obsess* over *radiosilence/radiostatic/murdermedia.*
 

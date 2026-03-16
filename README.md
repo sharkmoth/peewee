@@ -6,6 +6,7 @@
 
 <h1>ℌ𝔢𝔶𝔞, 𝔴𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔭𝔞𝔤𝔢</h1>
 
+<img width="400" height="160" alt="tumblr_c0130cae8d5c293e78a22106f" src="https://github.com/user-attachments/assets/ed5c5faf-5fdd-4551-ab6a-c2e6df578a79" />
 
 
 

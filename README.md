@@ -16,7 +16,9 @@ heya! i go by a few names, but you can call me vinnie,vox or ash.
 <h3>˚₊‧꒰ა BFYI ໒꒱ ‧₊˚</h3>
 <img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" />
 
-✦ Please do not interact with me if you obsess over radiosilence/radiostatic.
+✦ Please do not interact with me if you obsess over radiosilence/radiostatic/murdermedia.
+✦ I don't do ships with anyone else other than my boyfriend. Do not ask. Platonic is fine!
+✦ Do not interact with me if you are outwardly seriously sexual and ERP in public on ponytown. It's WEIRD AS FUCK.
 
 <img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />    staticmoth lover | radioapple lover | staticapple lover     <img width="150" height="136" alt="radioapple (1)" src="https://github.com/user-attachments/assets/283cee43-eb27-49a8-b25b-e82678ab7ecd" />
 ![9aceb64a-f88e-4a58-86bd-c5574ba8 (1)](https://github.com/user-attachments/assets/34896f21-67a1-48dc-b5c9-2e7b135b052a)

@@ -14,6 +14,7 @@
 zvsfsdfsdf
 
 <h3>˚₊‧꒰ა BFYI ໒꒱ ‧₊˚</h3>
+✦ Please do not interact with me if you obsess over radiosilence/radiostatic.
 <img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/1d2b4004-605d-48ef-8fec-88ac90efc185" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/7e257deb-5bcb-4f20-a225-e8b174f58ff4" />
 
 

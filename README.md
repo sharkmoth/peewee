@@ -3,7 +3,6 @@
 
 <h1>Heya, Welcome to my page.</h1>
 
-<img width="250" height="250" alt="Vox 1 (2)" src="https://github.com/user-attachments/assets/0a89659e-2a88-4a64-994c-5f8754ccbb26" /><img width="250" height="250" alt="Valentino 1 (1)" src="https://github.com/user-attachments/assets/a7459801-ab9b-4f03-bb4e-4b00a0a1c941" />
 
 
 
@@ -11,3 +10,5 @@
 
 zvsfsdfsdf
 </div>
+
+<img width="250" height="250" alt="Vox 1 (2)" src="https://github.com/user-attachments/assets/0a89659e-2a88-4a64-994c-5f8754ccbb26" /><img width="250" height="250" alt="Valentino 1 (1)" src="https://github.com/user-attachments/assets/a7459801-ab9b-4f03-bb4e-4b00a0a1c941" />

@@ -10,7 +10,8 @@
 <h1>.𖥔 ݁ ˖ ✦  ‧₊˚ ⋅ℌ𝔢𝔶𝔞, 𝔴𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔭𝔞𝔤𝔢  </h1>
 
 
-<img width="200" height="200" alt="tumblr_ae81b1b8f46e60799ecfb926a" src="https://github.com/user-attachments/assets/be7730d7-7486-4fe2-bb62-b1cd8e0e3625" />
+<img width="300" height="157" alt="image_2026-03-29_111643471" src="https://github.com/user-attachments/assets/6568b396-5b8f-43a7-b03e-b99bda02a539" />
+
 
 
 ![SHark 1 (1)](https://github.com/user-attachments/assets/ca3e606d-05fe-4322-92f0-adf9f4d99081)
@@ -37,7 +38,6 @@ heya! i go by a few names, but you can call me *vin*, *justin* or ***ash***.
 
 
  
-<img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/d866f2f2-58ba-4c9b-9e44-e98868fa6f7a" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/85f784ea-7baf-4f57-819a-bbcc21cc0f79" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/95ebf648-322d-4a45-85ca-46a44301d134" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/0b3ea7ad-eab5-427d-8b11-e654c54f2800" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/b0ab3858-5384-427f-a92b-9b54ee0503f2" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/b74bfe97-b68c-4b45-881b-f8117997217f" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/c06efba1-28e1-4451-bc9a-1c9d3bbd27bd" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/aad320f3-1492-45ac-a72d-0433850c7130" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/fa0dcfc0-4127-4a28-96c5-8957803e6bf9" /><img width="100" height="45" alt="lace 3 (1)" src="https://github.com/user-attachments/assets/059dc8f2-654b-49f2-b5b2-3fcba9715796" />
 
 
 

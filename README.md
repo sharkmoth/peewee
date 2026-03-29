@@ -23,7 +23,7 @@ heya! i go by a few names, but you can call me *justin* or ***ash***.
 
 
 
-✦ Please do not interact with me if you *obsess* over *radiosilence/radiostatic/murdermedia.*
+✦ WIP
 
 ✦ I don't do ships with anyone else other than my [Partner](https://github.com/TINYBUCCIA04). ***Do not ask.*** Platonic is fine!
 
@@ -31,8 +31,9 @@ heya! i go by a few names, but you can call me *justin* or ***ash***.
 
 ✦ Skin inspo is perfectly fine! Just please don't copy my skin entirely. ^^ Thank you
 
-<img width="120" height="120" alt="Vox 1 (3)" src="https://github.com/user-attachments/assets/a9f0b240-3884-4403-ac54-5ca555ca5df8" /><img width="120" height="120" alt="Valentino 1 (2)" src="https://github.com/user-attachments/assets/d6cca36c-dda5-43b5-998c-ab0de4a132a7" />    staticmoth lover | radioapple lover | staticapple lover     <img width="150" height="136" alt="radioapple (1)" src="https://github.com/user-attachments/assets/283cee43-eb27-49a8-b25b-e82678ab7ecd" />
-![9aceb64a-f88e-4a58-86bd-c5574ba8 (1)](https://github.com/user-attachments/assets/34896f21-67a1-48dc-b5c9-2e7b135b052a)
+
+
+<img width="90" height="133" alt="Illustration588 (1) (1)" src="https://github.com/user-attachments/assets/7d640c3d-2056-494d-b9b9-51a671511bd0" /><img width="150" height="127" alt="Illustration589 (1)" src="https://github.com/user-attachments/assets/3b6c3c01-6420-43be-9a94-4c2cf4a96d49" />   gyjo | diadop | caejose | joyasu enjoyer  <img width="150" height="150" alt="2696331_d4899 (1)" src="https://github.com/user-attachments/assets/e2568d28-7a5f-4285-9873-3ea84abefd3e" /><img width="150" height="127" alt="sdfwdfsf (2)" src="https://github.com/user-attachments/assets/9d50ee2e-4082-460d-b5a7-c82cfebdea72" />
 
 
 
@@ -48,7 +49,6 @@ heya! i go by a few names, but you can call me *justin* or ***ash***.
 </div>
 
 
-![sharklover](https://github.com/user-attachments/assets/7415ea47-8e40-4b98-adcc-7af8564afb76)![heh](https://github.com/user-attachments/assets/7fc43d3e-f494-4389-9748-27eaa9283b82)![tumblr_22258458cfb8a1cbc9fd7f4a5c5a3b66_700d7099_100](https://github.com/user-attachments/assets/a16189d5-6b8f-4cd9-b563-c5b744af2ccc)<img width="99" height="56" alt="tumblr_c7c79e5cf8e218f3d7ff6c6467601341_af9e0afb_100" src="https://github.com/user-attachments/assets/be47e3cf-2b21-4af0-a075-eb75e103c387" />![tumblr_1fd459952f45b4ba951fe88f5](https://github.com/user-attachments/assets/49116f72-1495-4b68-97b6-c24d7eb29e67)![tumblr_939aca92643c999838dbeade6](https://github.com/user-attachments/assets/0639d585-0c60-4894-b846-84cd1cfb10bb)![tumblr_13fe8ab1feb03fa97577f0962](https://github.com/user-attachments/assets/8f5014d6-2a27-4ba8-b16b-ac64fbc87088)
 
 
 

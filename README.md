@@ -26,7 +26,7 @@ heya! i go by a few names, but i mainly use *ash* or mirror whatever character I
 
 ✦ Do not interact with me if you are outwardly seriously sexual and ERP in public on ponytown. It's WEIRD AS FUCK.
 
-✦ Skin inspo is perfectly fine! Just please don't copy my skin entirely. ^^ Thank you
+✦ Skin inspo is perfectly fine! Just please don't copy my skin/style entirely. ^^ Thank you
 
 ✦ Hot take: I think telling people not to take inspo from you is childish asf. As long as you're not having your shit ripped and copied there should be no issue.
 
